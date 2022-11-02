@@ -6,6 +6,78 @@
 
 |||
 |-|-|
+|[![](https://i.ytimg.com/vi/xiUMf3Pu-ug/default.jpg)](https://youtu.be/xiUMf3Pu-ug)|[\"Grove: Uh oh...\" \| Updated Random DYOM Mission Speedruns](https://youtu.be/xiUMf3Pu-ug)|
+
+|||||
+|-:|-|-|-|
+|1:11|GTA SA Stories: Claude Learn to Kill Enemys|meisternikoo o|
+|3:28|Grove Street: Ryder is Alive!|PW|Translated, (Laughs)|
+|6:19|Vagos 4 Life Part 4: Guy?|Cocnut_pl|
+|10:44|GTA V CJ's Reflection (1)|Skadryl|Translated, sacred vehicle|
+|14:39|Beginning|the killer tr|
+|17:38|Agente 007 Brasil (Part 1)|MateusDD3|Translated, it turns into pastel|
+|19:44|The Fast Chronicle (Chapter1,Part 6)|maoffense06|
+|22:11|Filler|Toguro45|
+|23:08|LoL Vol. 2 Destroy the Van|Kowal3|Translated, eat on the ganton|
+|28:29|Police CIA vs Police FBI|Niko|
+|30:09|GTA Los Santos 5|Brian Walker|*crash*|
+|34:11|Group Problems|RyderWilson|Translated|
+|39:28|Racketing|LeonCJ|*skip*|
+|45:56|A|?|*skip*|
+|51:15|Crack Dealer|Justgames114|MemeBers, *skip*|
+|55:15|Dr. Murfin|Luiz Eduardo|Translated|
+|58:14|Infetion Part 4|hariq47|
+|1:00:09|Vogas DefendsMaddogChainatown|Jax|
+
+---
+
+|||
+|-|-|
+|[![](https://i.ytimg.com/vi/NCS3dgGB2uA/default.jpg)](https://youtu.be/NCS3dgGB2uA)|[\"kill fat and enter point.\" \| Updated Random DYOM Mission Speedruns](https://youtu.be/NCS3dgGB2uA)|
+
+|||||
+|-:|-|-|-|
+|\-|Weed|?|Translated, Unplayed|
+||
+|2:01|A Cabana Parte 2|Mongo Productions|Translated|
+|6:50|Quadruple Extermination II: The Comeback|VikingEVM|
+|18:51|SAS M9,Silenced Robbery|GTA Dude|
+|25:24|The Briefcase|Timmeh|
+|31:26|Get a Territory|Kailojado haddines|
+|34:20|Sniper Assassin 1|ArdaMission|enter point, PLS VOTE|
+|36:00|Guns Half Price|COOLMAN122234555896|
+|43:23|Hideout|Sony|
+|46:16|Grove 4 Ever|CowShipBR|Translated, *crash*|
+|47:37|The Hidden|Vinesh|
+|52:14|I Temporada|Andrei|Translated, hypothesis|
+|54:31|Biker Was|moaz alkorde|Translated|
+|55:39|Sweet Life Part 19|Shahzeb|
+
+---
+
+|||
+|-|-|
+|[![](https://i.ytimg.com/vi/YEBY0APJO4Y/default.jpg)](https://youtu.be/YEBY0APJO4Y)|[Updated Random DYOM Mission Speedruns](https://youtu.be/YEBY0APJO4Y)|
+
+|||||
+|-:|-|-|-|
+|2:49|Law:Money Made Me Go There|Karanss|*crash*|
+|3:39|The Amazing Race|HARMAN CHEEMA|*skip*|
+|7:29|Steal the Case.|Kir aka Spawn.|
+|10:46|Torre de Rifa|Keilen Oliveira|Translated|
+|19:53|K1ll Bigsmoke|bigjinnygamer|*skip*|
+|21:04|Cruzando Debaixo da Ponte|Henry|Translated|
+|25:54|A Bad Day in SA|Sanjay|
+|28:09|Front Assault|General Scrotum|
+|39:03|Zombie Empire Group(A)|Saahn|*skip*|
+|45:12|Rodadas Survived 2.0(Fixed)|BrasilDYOM|Translated|
+|1:02:27|Join to Ballas|Ahmed Samir|
+|1:05:31|Lavoro Sporco Pt.4|TheHunter|
+
+---
+
+|||
+|-|-|
 |[![](https://i.ytimg.com/vi/ex-CWI9M6aw/default.jpg)](https://youtu.be/ex-CWI9M6aw)|[\"Radio: Help You Fred's\" \| Slightly Updated DYOM Random Mission Speedruns](https://youtu.be/ex-CWI9M6aw)|
 
 |||||
