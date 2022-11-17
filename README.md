@@ -6,6 +6,81 @@
 
 |||
 |-|-|
+|[![](https://i.ytimg.com/vi/H-_YQP3KSCU/default.jpg)](https://youtu.be/H-_YQP3KSCU)|["He wants to f- the Lion King..." \| Random DYOM Mission Speedruns](https://youtu.be/H-_YQP3KSCU)|
+
+|||||
+|-:|-|-|-|
+|0:35|Rise of the Sun|Hebekie|cahs, roof-dot-zed|
+|5:31|1, 2, 3 Lets go! G4L|TheXProyect|*crash*|
+|10:23|Airport Graveyard|Szogun|
+|23:15|Find Last Enemy:Part 1|nanak birring|*skip*|
+|24:21|Boring! Bogoslaw is back!|Scarface|Translated, eat, *crash*|
+|35:20|Martincho Adventures Part 7|DYOM|
+|37:53|The Last Balla Member|?|
+|39:57|Call of Duty Warefare 2|QaiserH|*skip*|
+|40:52|Introduction|DYOM|
+|43:05|Introduction 2|GriZzLY|Translated|
+|46:33|Cops Chapter 17|Get Up|Translated|
+|49:30|LS Gangs vs SF Gangs|pepi8|
+|57:01|The Balloons|DYOM|Translated|
+|57:39|Another Parkour|jeffhardy555|Translated|
+|1:00:03|Firetruck Frenzy|spyderblack66|Translated|
+|1:04:46|same like 24:21|TheScarface43|Non-Translated|
+
+---
+
+|||
+|-|-|
+|[![](https://i.ytimg.com/vi/-73eB0YoBM0/default.jpg)](https://youtu.be/-73eB0YoBM0)|["There's your friend cj!" \| Random DYOM Mission Speedruns](https://youtu.be/-73eB0YoBM0)|
+
+|||||
+|-:|-|-|-|
+|1:00|FBI Man(Fox)|salehi3037m|Translated?, *skip*|
+|4:42|Kill Then Win|Ballinj|*skip*|
+|5:18|Out in Desert|LeonCJ|
+|11:59|Grove vs Vagos|Abdo|
+|14:51|Police Ambush|Nathan|*skip*|
+|16:06|O Golpe Da Fazenda: O Barco|DGGamer65|Translated, *skip*|
+|18:35|The Walking San Andreas Ep 1 What Happened|Karketon|Translated, tock tock|
+|20:13|Kill Time!|Lucasiimio|
+|21:51|Mafia 2 (CZ) Part 1|Yokerclown|*crash*, cesar warning|
+|23:57|Saving Uncle Sam|tonyng|*crash*|
+|24:27|SFPD Police Job 6|M.D|
+|30:06|Kill the Johnson Mom|Hatem in Egypt Arabic|
+|33:44|Slendytubbies|guifire|Translated|
+|35:08|An Offer You Can't Refuse|DonFedrizzi|
+|43:47|Wojny Gangow: Ballas vs Grove|Dawid Pracki|Translated, be silent or shut up, *skip*|
+|46:11|Try|God L A R V A|Translated, cesar 2.0, xd, *skip*|
+|47:55|Dead Fall|Jimmy|*skip*|
+|50:52|Amigo em Perigo!|WallaceGhost|Translated|
+
+---
+
+|||
+|-|-|
+|[![](https://i.ytimg.com/vi/hkfU6zIyGJ4/default.jpg)](https://youtu.be/hkfU6zIyGJ4)|[The return of: "Time to make a decision." | Random DYOM Mission Speedruns](https://youtu.be/hkfU6zIyGJ4)|
+
+|||||
+|-:|-|-|-|
+|6:01|Charlie Krypson's Death|semih|Translated, *skip*|
+|9:53|Escape the Downtown|CJ|
+|11:37|V for Vinegar: Beta|The Half Blood Prince|Translated|
+|20:37|The Bank Heist|zgames|*crash*|
+|31:11|Back to Fortress|mrejtely|
+|34:38|Blackhawk Down...|Warpig 18|*skip*|
+|35:29|Claude Life Beta|AlexLangrish|*skip*|
+|36:09|Snajper|Pawi8089|Translated, eat first|
+|42:35|Guerra de Bandas|Mash600|Translated, *crash*|
+|47:52|The Purge|Zeta|Translated, *skip*|
+|49:27|El Balla|Julan|Translated, *skip*|
+|53:08|Big Prize at the Big Ear|Tony Resta|
+|57:49|Some Secrets Never Sleep|wK comander|
+|58:40|Riot Chain Story Part 6|Zohair Irani|
+
+---
+
+|||
+|-|-|
 |[![](https://i.ytimg.com/vi/xiUMf3Pu-ug/default.jpg)](https://youtu.be/xiUMf3Pu-ug)|[\"Grove: Uh oh...\" \| Updated Random DYOM Mission Speedruns](https://youtu.be/xiUMf3Pu-ug)|
 
 |||||
