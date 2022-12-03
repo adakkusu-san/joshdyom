@@ -2,6 +2,72 @@
 
 [HTML version](https://adakkusu-san.github.io/joshdyom)
 
+This thing was made by Mura_Sora in twitch chat; if you see this and they're there, tell them hi!!
+
+[Go back to my homepage](https://adakkusu-san.github.io/)  
+[Go to the playlist](https://youtube.com/playlist?list=PLnFYuYwRteIMn1lvwIiGimb1w4U9meQKJ)
+
+---
+
+|||
+|-|-|
+|[![](https://i.ytimg.com/vi/9BhlixZZhjE/default.jpg)](https://youtu.be/9BhlixZZhjE)|[Not using Stealth \| DYOM Random Mission Speedruns](https://youtu.be/9BhlixZZhjE)|
+
+|||||
+|-:|-|-|-|
+|0:46|First Contact|501st Wolf|
+|3:38|Umilde Robo|jonathanluna|Translated, xfa, *skip*|
+|7:03|COD 4.2 Battle on the Woods|CVLK|*skip*|
+|11:27|Menace 2|VikingEVM|
+|34:40|Uphill Battle|Dominic|gogogo, *crash*|
+|35:22|Take Back the Car|Grovallas|
+|40:42|GTA Sao Paulo: The Beginning|Enzogamer|Translated|
+|43:33|San Andreas Stories M2,Crashin a Party|GTA Dude|
+|45:45|Grove Defender|Maulana Bagus|once it for all|
+|47:46|Camp at Chiliad|GTA!!!|
+
+---
+
+|||
+|-|-|
+|[![](https://i.ytimg.com/vi/dMAYU7a76Y4/default.jpg)](https://youtu.be/dMAYU7a76Y4)|[\"What the ****, Sandra?\" \| DYOM Random Mission Speedruns](https://youtu.be/dMAYU7a76Y4)|
+
+|||||
+|-:|-|-|-|
+|\-|Ballas vs San Fierro Rifas|?|Translated, Unplayed|
+|1:20|Let's Climb!|Maaz45|*skip*|
+|4:32|Stranger Edu Parte 5|Eduardo|Translated|
+|7:57|Zombies From Los Santos|Dax|
+|9:51|Invadindo o Navio|Gokye09|Translated, mighty ship|
+|17:53|Grove vs SWAT|Entong704|
+|18:23|Max Payne|Fort MAJOR|
+|20:54|Mission DK|rayyan|
+|30:55|The Robbery|Sohaib|
+|40:35|Day 1|LeonCJ|
+|43:39|Sem Honra, $em Grana|Paula Sygma|Translated|
+
+---
+
+|||
+|-|-|
+|[![](https://i.ytimg.com/vi/A1eSJuwN8lk/default.jpg)](https://youtu.be/A1eSJuwN8lk)|[\"You picked the wrong apartment fool!\" \| DYOM Random Mission Speedruns](https://youtu.be/A1eSJuwN8lk)|
+
+|||||
+|-:|-|-|-|
+|1:31|End of the Line (Smoke and Tenpenny Wins)|PowerGaming64|
+|13:25|Sweet Death Pt2 Under the Bridge|Italian SA Gamer|Translated, *crash*|
+|13:52|Lives in Venturas|fangye|
+|20:31|Homies Sharp|Raqeeb Raees|
+|26:31|The Lazy Saints|lologamer|Translated|
+|30:01|The Return of a Legend|mrlv31|
+|36:26|Your Choice|samuel|
+|39:51|Car Salesman Pt.1|HamerNador|
+|42:00|Fueling With Vodka|Canadian Scrotum|*skip*|
+|48:48|The Grove Street Driveby|MrBlue630|
+|49:53|Going Crazy|Rob|
+|52:20|To The Rescue|ChrizzDG5|
+|58:02|Do Not Download Please A Mistake Happned|Maziar05|
+
 ---
 
 |||
@@ -58,7 +124,7 @@
 
 |||
 |-|-|
-|[![](https://i.ytimg.com/vi/hkfU6zIyGJ4/default.jpg)](https://youtu.be/hkfU6zIyGJ4)|[The return of: "Time to make a decision." | Random DYOM Mission Speedruns](https://youtu.be/hkfU6zIyGJ4)|
+|[![](https://i.ytimg.com/vi/hkfU6zIyGJ4/default.jpg)](https://youtu.be/hkfU6zIyGJ4)|[The return of: \"Time to make a decision.\" \| Random DYOM Mission Speedruns](https://youtu.be/hkfU6zIyGJ4)|
 
 |||||
 |-:|-|-|-|
@@ -678,23 +744,23 @@
 
 |||||
 |-:|-|-|-|
-|0:48|Omar57844|Living Till The End Pt.2|*crash*|
-|1:25|Simon4722|GTA V Mission 17|*skip*|
-|5:46|Nottobeknown|Ship of Hostages Pt2..SWAT Night...|
-|9:20|Oyun Matik|Sonun Arifesi|Non-English, *skip*|
-|14:42|Reza|The Party Parody Mission Vice City San Andreas|
-|19:08|Ricah|Chasing Ropes|Non-English, *skip*|
-|20:53|GEORGES 91|A Normal Day 2|
-|26:04|BleckHawkk|Smoke, Only History|Non-English|
-|30:13|beno stone|End of the Grove (Part1)|
-|32:56|Lucas|Life at Grove|
-|36:12|rexmaster|La Vida de Luis Episodio 7|Non-English|
-|40:42|mattmiguel123|Help Big Smoke Kill Enemy Chapter 2 Pt 2.|*skip*|
-|46:17|lamistomido|Counter Terrorism|*skip*|
-|48:17|Gangsta Paradoc|Rob the Shop|
-|51:37|UNRATED|The Fight|
-|56:00|DYOM|A Sofor|Non-English|
-|1:01:31|Kaizer Chief|The Uprising Begins|
+|0:48|Living Till The End Pt.2|Omar57844|*crash*|
+|1:25|GTA V Mission 17|Simon4722|*skip*|
+|5:46|Ship of Hostages Pt2..SWAT Night...|Nottobeknown|
+|9:20|Sonun Arifesi|Oyun Matik|Non-English, *skip*|
+|14:42|The Party Parody Mission Vice City San Andreas|Reza|
+|19:08|Chasing Ropes|Ricah|Non-English, *skip*|
+|20:53|A Normal Day 2|GEORGES 91|
+|26:04|Smoke, Only History|BleckHawkk|Non-English|
+|30:13|End of the Grove (Part1)|beno stone|
+|32:56|Life at Grove|Lucas|
+|36:12|La Vida de Luis Episodio 7|rexmaster|Non-English|
+|40:42|Help Big Smoke Kill Enemy Chapter 2 Pt 2.|mattmiguel123|*skip*|
+|46:17|Counter Terrorism|lamistomido|*skip*|
+|48:17|Rob the Shop|Gangsta Paradoc|
+|51:37|The Fight|UNRATED|
+|56:00|A Sofor|DYOM|Non-English|
+|1:01:31|The Uprising Begins|Kaizer Chief|
 
 ---
 
@@ -704,18 +770,18 @@
 
 |||||
 |-:|-|-|-|
-|0:59|Player MOTW|Vagos Hood|
-|5:24|LeftWardBook|Drog Biznisz|Non-English|
-|10:37|PVX|Dom Z Papieru|Non-English, *skip*|
-|24:00|elthonses|Sweet Plans|
-|25:46|JaXa123|The Story of Killers Part 2|
-|41:50|xXKingXx|REDACTED vs REDACTED|
-|44:15|zfkdaniel|The Attack Alert|*skip*|
-|44:56|YOM|Ojear La Joyeria|Non-English|
-|51:22|saransh|The Party|
-|53:35|omar thepro|Big Smoke Not Die|
-|56:28|Gangsta Paradoc|Driving|
-|58:25|Darkstrife|The Desert Werefare (Chapter 4)|
+|0:59|Vagos Hood|Player MOTW|
+|5:24|Drog Biznisz|LeftWardBook|Non-English|
+|10:37|Dom Z Papieru|PVX|Non-English, *skip*|
+|24:00|Sweet Plans|elthonses|
+|25:46|The Story of Killers Part 2|JaXa123|
+|41:50|REDACTED vs REDACTED|xXKingXx|
+|44:15|The Attack Alert|zfkdaniel|*skip*|
+|44:56|Ojear La Joyeria|YOM|Non-English|
+|51:22|The Party|saransh|
+|53:35|Big Smoke Not Die|omar thepro|
+|56:28|Driving|Gangsta Paradoc|
+|58:25|The Desert Werefare (Chapter 4)|Darkstrife|
 
 ---
 
@@ -846,7 +912,4 @@
 |3:09:38|D.I.S (In The Streets)|Gangsta Paradoc|
 |3:14:19|Mafia 03 - Molotov Party|sebastianpol|
 
-This thing was made by Mura_Sora in twitch chat; if you see this and they're there, tell them hi!!
-
-[Go back to my homepage](https://adakkusu-san.github.io/)  
-[Go to the playlist](https://youtube.com/playlist?list=PLnFYuYwRteIMn1lvwIiGimb1w4U9meQKJ)
+I moved the things that were here to top of webpage, [so go there](#top)
