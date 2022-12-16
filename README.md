@@ -1,6 +1,8 @@
 # joshdyom
 
-[HTML version](https://adakkusu-san.github.io/joshdyom)
+[**HTML version**](https://adakkusu-san.github.io/joshdyom)
+
+Note: This file will no longer be updated soon, consider going to [**HTML version**](https://adakkusu-san.github.io/joshdyom) above instead
 
 This thing was made by Mura_Sora in twitch chat; if you see this and they're there, tell them hi!!
 
@@ -8,6 +10,8 @@ This thing was made by Mura_Sora in twitch chat; if you see this and they're the
 [Go to the playlist](https://youtube.com/playlist?list=PLnFYuYwRteIMn1lvwIiGimb1w4U9meQKJ)
 
 ---
+
+<details>
 
 |||
 |-|-|
@@ -911,5 +915,7 @@ This thing was made by Mura_Sora in twitch chat; if you see this and they're the
 |3:06:39|A Misao De Escapar Dos Zombes|David Eric Luz|Non-English|
 |3:09:38|D.I.S (In The Streets)|Gangsta Paradoc|
 |3:14:19|Mafia 03 - Molotov Party|sebastianpol|
+
+</details>
 
 I moved the things that were here to top of webpage, [so go there](#top)
